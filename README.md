@@ -1,0 +1,2 @@
+# Corruption-of-Champions
+NOTE: CONTAINS MATURE CONTENT. ADULTS ONLY
